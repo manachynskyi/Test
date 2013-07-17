@@ -1,1 +1,1 @@
-Маначинський
+Manachynskyi
